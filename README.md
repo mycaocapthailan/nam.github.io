@@ -1,1 +1,0 @@
-# nam.github.io
